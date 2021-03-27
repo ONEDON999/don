@@ -1,0 +1,1 @@
+"My name is Ni-gyan Christian, I stay at Sunyani(Brono Ahafo region) but come from Accra in the Greater Accra region. I'm fair in colour, I'm 20 years of age.I school at University Ghana and the program i offer is Computer Engineering."
